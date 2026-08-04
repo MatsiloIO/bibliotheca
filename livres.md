@@ -1,3 +1,3 @@
-# Ma bibliothèque
+# Ma bibliothèque (triée)
 
 - Le Petit Prince (conte)
