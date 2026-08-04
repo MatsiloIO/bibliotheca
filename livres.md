@@ -1,3 +1,3 @@
 # Ma bibliothèque
 
-- Le Petit Prince
+- Le Petit Prince (conte)
